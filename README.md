@@ -1,5 +1,4 @@
-# tutorial
-Follow Through
+# Personal Introduction
 
 Hello! I'm Angus Ng, founder of my personal branding Hostgagements. By emceeing, managing events, making team building events and copywriting for coporates, I spread my passions and beliefs.
 
